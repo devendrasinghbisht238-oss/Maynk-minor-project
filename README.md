@@ -1,1 +1,1 @@
-# Maynk-minor-project
+# Mayank-minor-project
